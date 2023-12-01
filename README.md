@@ -5,6 +5,23 @@ too deep to put here. circle
 First, draw a crawfish. Imagine he is Jewish. Then imagine you eat his chill out man. You didn't know right? Then its not okay, we got to end this genocide right now. No.
 
 The two Jewish kids run off searching for the Legend of the Jewish Craw.
+Act 1: The Encounter
+
+In a quaint little town nestled near a river, lived two curious Jewish kids, Benny and Sarah. One day, while exploring the riverbanks, they stumbled upon a peculiar sight – a crawfish wearing a tiny yarmulke. Intrigued, they approached the creature, whom they later named "Crawford."
+
+Crawford was a friendly and wise crawfish who spoke with an old Yiddish accent. He shared stories of his ancestors and the importance of harmony among all beings. Little did they know that this chance meeting would set them on a path to discover the Legend of the Jewish Craw.
+
+Act 2: The Revelation
+
+As Benny and Sarah spent more time with Crawford, they learned about a hidden prophecy foretelling a great danger that could befall their community. According to the legend, an ancient artifact known as the "Matzo of Unity" had the power to bring harmony and understanding among all creatures. However, it was lost centuries ago.
+
+Driven by a sense of duty, Benny and Sarah decided to embark on a quest to find the Matzo of Unity and prevent the impending catastrophe. Crawford, being the guardian of the legend, bestowed upon them a magical map leading to the artifact's possible location.
+
+Act 3: The Journey
+
+The journey took the trio through enchanted forests, treacherous mountains, and mysterious caves. Along the way, they encountered challenges that tested their courage and resilience. As they pressed on, the bond between Benny, Sarah, and Crawford grew stronger, symbolizing the unity the Matzo was meant to bring.
+
+In their quest, they discovered the Matzo of Unity hidden in the heart of a forgotten temple. However, their triumphant moment was short-lived as a dark force, fueled by discord and hatred, emerged to seize the artifact for its destructive power.
 
 Act 4: The Climax
 
