@@ -47,6 +47,10 @@ This bandit group of kids band together and use culture to trick the cult into c
 
 eboy R is dying of AIDS2.0 and he coughs up blood into his jacket and hand. The blood coagulates and runs and globulates and the girlie girls look at him in horror and disgust jest as the mechanical arm of the witch cuts his body in half. And then, I saw then what looked to apear to look like red blood splash in a flower like pattern that went away fast and I noticed the ANTI-VIRUS, they call him. They call him the ANTIVIRUS but he is just another one of those people.
 
+eboy G A S fully become one with the aids 2.0 virus and their bodies explode as the nanobots react with the antiwater versu antioil fabrication which can kill any one or anything rna dna anything instantly. And boom these fuckers go off like a light. No brighter than that, they go off like an enchanting romance. eboy G and S explode and blood goes everywhere in a cold mist. Eboy A was thinking about the last time he boom and a cold mist of red went across thier faces.
+
+Egirl A was still alive. she was amazed at how she could power up with love in her heart still living and dreaming the dream. Egirl XX was beautiful still and her eyes were killing demons still as they would run up to kill her, these demons would actually be killed by her eyes , so don't judge that. You can't judge that. That's non-judgeable. Demons die in piles up by this girl I roll with. She calls her self Mpmh...
+
 ## Their spell of proteections were cast with strength and resolve and now they can exit the arena.
 
 # ACT 4
