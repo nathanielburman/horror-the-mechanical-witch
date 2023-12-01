@@ -40,6 +40,8 @@ First, just shoot off a circle and honestly I like to mask trinities of gold in 
 
 AIDS Virus 2.0 rips through the internet. It now infects all computer systems and user profiles. The computer user's brains and minds are infected with the new virus. It has a beauty and is deadlier than even before. Meme magic and Richardawkins Meme of the Eye Killed every money looking futher fucker for three street blocks, out of no where. The largest explosion you have ever seen in your life for three street blocks. Blood, arms and brains for three blocks.
 
+I met Jesus last night. Christ 2.0 CHRIST 2.0 was gay. I met CHRIST 3.0 he was AIDS 2.0. Well, I met ANTI-AIDS Virus and he fropped off his girl at the party the other night and told me somthing very strange. He said whatever.
+
 ..
 .
 
