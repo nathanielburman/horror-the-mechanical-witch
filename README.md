@@ -100,3 +100,19 @@ The witch kills you!
 # ACT 1 UGLY = BEAUTIFUL
 
 The girls know this trick: they say punish me, punish me punish me, no don't punish me. It is a really sexy trick that works.
+
+...
+
+I keep going into Wonderland because of the fucking cat. That cat. It gets me everytime. I have no idea why you guys keep going back in. Girls, why, go, back, into, wonderland, every sixth day of the calendar season? I love the cat girls. The wizard cat.
+
+Olivia, Is a girl. I fell in love with some Chinese cats. So what? Honestly. Beauty is beauty. Beautiful = Beautiful. I love these girls for real. They are cats too and kitten. And I miss kitten. And I love kitten. For real kitten is special.
+
+...
+
+At school they teach us that Beauty is Beauty but then we are killing each other to become ugly. We were made too perfect. Our image was too perfect.
+
+So we killed each other and we wore their faces like masks. Their little fingers we wore like medallions around their necks. Fingers and penises and vagina lips. Thesse evil white men would raid a village and split a womans legs in two and cut her lips down like on sale at the office of medicine and then they leave you with the bill! They do offer insurance options for the whole ordeal. Raiders insurance sounds cheap, but its not cheap its rather expensive with the ants running the show.
+
+But I had to become ugly. I was becoming more ugly little by little. And people were starting to notice.
+
+We became uglier on the coast as a result of it. I miss the Chinese kittens I hardly met and I miss all my family and friends ever since I created the AIDS 2.0 Virus. I miss everyone and rumplestilskin. And Eeyore and that guy from Labrynth Hoggle The Fairy Slayer. Hoggle The Fairy Stomper. Stomp. FaeSlay. FaSlay FeSlay FAESLAYER. Hoggle the killer of fae. Hoggle Destroyer of Fairykind. Hoggle the Fairy Genocider. Hoggle the terror of all fairys. The worste nightmare of all fairies. The little man. Loved a kitten too probably in another time. 
