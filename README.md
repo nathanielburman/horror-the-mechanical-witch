@@ -1,4 +1,4 @@
-# ACT 1
+# ACT 1 - Beautiful = Beautiful
 # horror-the-mechanical-witch
 too deep to put here. circle
 
@@ -94,6 +94,9 @@ Egirl A was still alive. she was amazed at how she could power up with love in h
 ## Their spell of proteections were cast with strength and resolve and now they can exit the arena.
 
 # ACT 4
-THe witch kills you!
+The witch kills you!
+
+## Sequel - Girl Love A Woman's Story
+# ACT 1 UGLY = BEAUTIFUL
 
 The girls know this trick: they say punish me, punish me punish me, no don't punish me. It is a really sexy trick that works.
