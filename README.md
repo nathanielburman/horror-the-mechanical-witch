@@ -46,6 +46,18 @@ The Legend of the Jewish Craw became an integral part of the town's lore, a tale
 
 ...
 
+I fell in love with these cat girls. This cat girl is a goddess and a cat girl. I can't say this stuff. Why am I even saying this stuff right now? The cat girls. She this woman is in her 20s or somthething and she is also a cat. super hot cat. This was my third cat outing since the stuff four days ago starting. But this is the third cat girl and the third day of the fourth of some magic and this cat girl was actually the hottest too. She has the garter strap on which takes it to that level. Its just a distraction when your wearing it right? and, she has belly beads too and a shiny skirt and a black top and beautiful cat ears and beautiful long blue or pink hair that is vibrant and full of energy.
+
+And she was with two ther maidens of hers. they would play some games sitting in a chair and they would talk to me and to us and say numbers and they were beautiful and their words were better than ours. They talked about protection and discipline. Will you protect us? Do you want to discipline me? So, I do what is natural and I fall in love with the third Cat girl on the third day of cat girls with the third channel/flip of the phone, the third cat girl, Olivia.
+
+I needed to lay down for a minute, with her. But her friend took over the stream and was crowned to be the queen and I only saw the cat girl run by the camera really fast and then they all came back really fast and said good bye. But I totally missed the cat girl at the end. That was for me. She was missing and I don't know if anyone else realizes it except for me and who ever else was 100% connected to the cat girl. But she dissapears in the video at the end.
+
+There's cursed videos out there. Hell if you look around much you can find a cursed live stream right now, if you know where to look. And everything seems normal.
+
+This is a cursed stream right now. I have been designing this to be a weapon. fashioned with feather and cursed with glue.
+
+...
+
 ## First, draw a circle for protection. Then bubble it and then put this spell inside to help give your bubble some weight. Laugh, laugh a little. Here's one if you still want one. Spell: Everything is money.
 
 Now imagine it the color red. This bubble is maintained by a spirit at the top. And two spirits flank the bubble on each side. One spirit is below maintaining it. All spirits are women.
