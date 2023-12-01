@@ -23,13 +23,13 @@ AIDS Virus 2.0 rips through the internet. It now infects all computer systems an
 ..
 .
 
-# I look around for Holy. But I don't see Holy. I can't find Holy either.
+### I look around for Holy. But I don't see Holy. I can't find Holy either.
 
-# What is Holy. Nobody even mentions Holy anymore.
+### What is Holy. Nobody even mentions Holy anymore.
 
-# Good Versus Evil. The good guys are Marvel Comics and they killed the only Jew who was a good guy, Magneto died of ball cancer. Aids 2.0 virus has been uploaded into your brain.
+Good Versus Evil. The good guys are Marvel Comics and they killed the only Jew who was a good guy, Magneto died of ball cancer. Aids 2.0 virus has been uploaded into your brain.
 
-# DC comics are the evil guys and gals. All DC characters are evil. I am sorry but this is all part of the virus. This is not part of this story.
+DC comics are the evil guys and gals. All DC characters are evil. I am sorry but this is all part of the virus. This is not part of this story.
 
 .
 ..
