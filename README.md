@@ -6,6 +6,8 @@ too deep to put here. circle
 
 Bar anything illegal.
 
+Death to America. Death to Democracy! Death to those who say I am Democracy becuase Democracy is pure evil.
+
 ## The two Jewish kids run off searching for 
 ## The Legend of the Jewish Craw-man.
 They discover that there is an entire race of Crawfish People and this is their adventures as a diversion from the main story. This is a diversion.
