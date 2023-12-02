@@ -33,7 +33,7 @@ The journey took the trio through enchanted forests, treacherous mountains, and 
 In their quest, they discovered the Matzo of Unity hidden in the heart of a forgotten temple. However, their triumphant moment was short-lived as a dark force, fueled by discord and hatred, emerged to seize the artifact for its destructive power.
 
 ## Act 4: The Climax
-
+<img src="https://github.com/nathanielburman/horror-the-mechanical-witch/blob/main/1dream_TradingCard.jpg" width="400px"></img>
 A fierce battle ensued as Benny, Sarah, and Crawford faced the malevolent force known as the "Shadow Discordant," a manifestation of centuries-old resentment and hatred. The Shadow Discordant sought to exploit the Matzo of Unity's power for its nefarious intentions, aiming to sow discord and chaos throughout the town and beyond.
 
 In the heart of the ancient temple, the trio confronted the Shadow Discordant, its dark tendrils reaching out to grasp the Matzo. Benny, Sarah, and Crawford stood firm, their unwavering unity a stark contrast to the malevolence before them.
