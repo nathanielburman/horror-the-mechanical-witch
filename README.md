@@ -96,6 +96,10 @@ They hated each other. The latin lover, the prince, her brother was huge at part
 # ACT 2 The Mechanical Witch
 Standing floating right in front of you. Her mechanical arms reach out like a cockroackes. Their are thousands of arms that reach out for your body in a way and everything becomes black as your body goes weightless. The combinated is enough to throw anyone off for a second which is just enough time to have already spun you in a web in my dimension. The gag about the evil wicked witch is true. Its not a gag.
 
+She swipes left. A eboy W head turns into inion slices. His body drops to the black and falls and goes away.
+
+She swipes left again. an eboy J runs over to the mechanical witch but gets sucked up into the black space and goes weightless and his right toe floats up to teh witches head before he explodes into blood.
+
 # ACT 3 The Church
 This bandit group of kids band together and use culture to trick the cult into chaos which results in the entrance of a new character, The Anti-AIDS 2.0 Virus Terminator, AIDS 2.0 flexes up in the room. A few thousand T cells fire up in the neo cortex and crystal systems vibrate messages.
 
