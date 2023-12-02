@@ -8,7 +8,7 @@ Bar anything illegal.
 
 ## The two Jewish kids run off searching for 
 ## The Legend of the Jewish Craw-man.
-
+They discover that there is an entire race of Crawfish People and this is their adventures as a diversion from the main story. This is a diversion.
 <img src="https://github.com/nathanielburman/horror-the-mechanical-witch/blob/main/dream5_TradingCard.jpg" width="400px"></img>
 
 ## Act 1: The Encounter
