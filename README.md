@@ -8,6 +8,8 @@ Bar anything illegal.
 
 ## The two Jewish kids run off searching for the Legend of the Jewish Craw.
 
+<img src="https://github.com/nathanielburman/horror-the-mechanical-witch/blob/main/dream5_TradingCard.jpg" width="400px"></img>
+
 ## Act 1: The Encounter
 
 In a quaint little town nestled near a river, lived two curious Jewish kids, Benny and Sarah. One day, while exploring the riverbanks, they stumbled upon a peculiar sight – a crawfish wearing a tiny yarmulke. Intrigued, they approached the creature, whom they later named "Crawford."
