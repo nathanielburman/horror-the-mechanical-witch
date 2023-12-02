@@ -6,7 +6,8 @@ too deep to put here. circle
 
 Bar anything illegal.
 
-## The two Jewish kids run off searching for the Legend of the Jewish Craw.
+## The two Jewish kids run off searching for 
+## The Legend of the Jewish Craw-man.
 
 <img src="https://github.com/nathanielburman/horror-the-mechanical-witch/blob/main/dream5_TradingCard.jpg" width="400px"></img>
 
