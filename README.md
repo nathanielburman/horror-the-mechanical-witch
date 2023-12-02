@@ -6,7 +6,7 @@ too deep to put here. circle
 
 Bar anything illegal.
 
-Death to America. Death to Democracy! Death to those who say I am Democracy becuase Democracy is pure evil. The White man when he grows up from White boy, is pure evil in America. Their heritage is one of pure evil and lies. The lies that White people tell. They use the lie everytime they speak.
+Death to America. Death to Democracy! Death to those who say I am Democracy becuase Democracy is pure evil. The White man when he grows up from White boy, is pure evil in America. Their heritage is one of pure evil and lies. The lies that White people tell. They use the lie everytime they speak. THeir entire civilization is built on lies. A constant flow of lies from their red or pale lips. The white man is pure evil. Only a predator of men can be worse.
 
 ## The two Jewish kids run off searching for 
 ## The Legend of the Jewish Craw-man.
