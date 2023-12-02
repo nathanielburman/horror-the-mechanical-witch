@@ -2,7 +2,7 @@
 # horror-the-mechanical-witch
 too deep to put here. circle
 
-<img src="https://github.com/nathanielburman/horror-the-mechanical-witch/blob/main/dream5_TradingCard.jpg" width="400px"></img>
+<img src="https://github.com/nathanielburman/horror-the-mechanical-witch/blob/main/drea444m_TradingCard.jpg" width="400px"></img>
 ### First, draw a crawfish. Imagine he is Jewish. Then imagine you eat his chill out man. You didn't know right? Then its not okay, we got to end this genocide right now. No.
 
 Bar anything illegal.
